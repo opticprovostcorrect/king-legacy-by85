@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with king legacy Script new, the #1 Script. Includes auto-sell and speed for unbeatable performance.
 
 
 
